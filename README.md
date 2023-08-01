@@ -1,1 +1,1 @@
-# tempmegapixel.com
+# tempmegapixel
